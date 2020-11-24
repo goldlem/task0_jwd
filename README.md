@@ -1,2 +1,2 @@
 # task0_jwd
-There isn't the link, because there's error with java -classpath ...
+https://photos.app.goo.gl/AeqfuMV6DdDQpPF56 
